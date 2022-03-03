@@ -1,1 +1,1 @@
-You have no clue.
+No clue
